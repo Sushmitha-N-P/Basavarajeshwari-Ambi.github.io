@@ -1,1 +1,0 @@
-# Basavarajeshwari-Ambi.github.io
